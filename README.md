@@ -1,1 +1,0 @@
-# ivyteksym.web.github.io
